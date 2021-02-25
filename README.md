@@ -4,4 +4,4 @@
 
 2. Gwynne Shotwell -  President and chief operating officer of SpaceX
 
-3. 
+3. Thomas Scott Kaplan - American billionaire businessman, investor, philanthropist and art collector.
